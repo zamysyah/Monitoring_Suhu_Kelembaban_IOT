@@ -79,4 +79,3 @@ Oke, noted semuanya! Berikut ini rencana isi presentasi **"Smart Temperature & H
 
 ---
 
-Aku akan mulai buatkan PPTX-nya sekarang. Kasih aku waktu sebentar, dan setelah selesai akan langsung aku kirim di sini.
